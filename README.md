@@ -42,7 +42,7 @@ I've organized this repository to encompass the various aspects of tech that I'm
 
 I'm always excited to connect with fellow tech enthusiasts and learners. Feel free to get in touch with me through the following channels:
 
-Email: s1imoa@outlook.com
+Email: eng.osamaaljohani5@gmail.com
 
 
 LinkedIn: Osama Aljohani
